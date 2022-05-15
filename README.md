@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @moneymukunth
 - 👀 I’m interested in Making Money Online
-- 🌱 I’m currently learning Web Develpment
+- 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on SEO
 - 📫 How to reach me Email Me @ makemoneywithmukunth@gmail.com 
 -  My Official Website https://makemoneywithmukunth.com/
